@@ -25,6 +25,8 @@ by
 
 Redes Sociais:
 
+[SiriNEO Technologies - Grupo Telegram](https://t.me/+JRUYf0m6IjE0ZGMx)
+
 [SiriNEO Technologies - site](http://sirineotechnologies.com)
 
 [SiriNEO Technologies - Linkedin](https://www.linkedin.com/company/sirineo-technologies)
